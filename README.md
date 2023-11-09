@@ -1,4 +1,4 @@
-# wake-county-proxy-webistes-working
+# wake-county-proxy-websites-working
 https://sites.google.com/view/bypass-central/unblocked-links/incognity 
 https://www.haleyschool.com/ 
 
