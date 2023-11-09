@@ -1,6 +1,8 @@
 # wake-county-proxy-webistes-working
-https://sites.google.com/view/bypass-central/unblocked-links/incognity Use this for extra links.
+https://sites.google.com/view/bypass-central/unblocked-links/incognity 
+https://www.haleyschool.com/ 
 
+use those websites for some good links.
 
 
 167.71.43.43 type this into the search bar. 
